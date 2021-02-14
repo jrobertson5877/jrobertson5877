@@ -5,6 +5,6 @@
   - Email: jrob5877@gmail.com
   - LinkedIn: https://www.linkedin.com/in/josh-robertson-59b6a3164/
   
-  I am also actively looking for fult-time or internship positions that deal with any of the afformentioned practices or fields. My hope is to be able to properly serve my community by following my passion within this career sector.
+  I am also actively looking for full-time or internship positions that deal with any of the afformentioned practices or fields. My hope is to be able to properly serve my community by following my passion within this career sector.
   
 
